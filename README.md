@@ -19,7 +19,7 @@
 
 - 🤪 The first complete and flawless database in Telegram.
 
-- 👻 Wait for free download 
+- 👻 free download 
 
 # How to ger:
 ----------------------
