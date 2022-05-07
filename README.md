@@ -27,6 +27,7 @@
 🔞The M4nifest0 (M4) team ☠️ is a security team from the Black Hat hacker group🏴‍☠️that has set up public sites👀, destroyed government sites🦠, and disclosed information around the world to enforce people's rights.💀💪
 🛒 https://t.me/M4nifest0
 
+
 *******************************************
 -📌 Facebook Data Leak Afghanistan
 -📌 Number of information 👉🏽 558,393.            
